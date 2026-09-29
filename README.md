@@ -8,6 +8,8 @@ dni list (general and DW specific)
 - shrimpo and waxwell kins iwec
 - faking mental illnesses especially DID its not just kinning a character btw
 - if u demonize bpd or npd well bye i have both heavy symptoms so u wont like me in the first place
+
+════════════════════════════════════════════════════════
   
 
 some DW ships id rather u **not** mentioned (idgaf if u ship it just dont mention it around me. plus i have my own reasons to be uncomfortable with these. i have nothing against the shippers.)
@@ -23,8 +25,9 @@ some DW ships id rather u **not** mentioned (idgaf if u ship it just dont mentio
 - yatta x looey
 - fashionshow
 
+════════════════════════════════════════════════════════
 
-MORE STUFF
+MORE DW STUFF AND INFO
 
 u wish to know whats my favorite ships? there. berryfunny, funtime, souljester, spaceclown, angrywax, jewerlybox, lullaby, moonshell, ragebait, christmascookie, telescope, waterballoon, angryballoon, nighttime, brightvision, ornamentbasket
 
