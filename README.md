@@ -5,7 +5,7 @@ dni list (general and DW specific)
 - those fruitcake shippers omfg. fruitcake fans int w care anyway
 - if u draw any toon in a weird sexualized way (cosmo "fans" yk im talking about u)
 - younger than 15
-- shrimpo and waxwell kins iwec
+- shrimpo, dioda and waxwell kins iwec, dyle and dessa yumeshippers iwec aswell
 - faking mental illnesses especially DID its not just kinning a character btw
 - if u demonize bpd or npd well bye i have both heavy symptoms so u wont like me in the first place
 
