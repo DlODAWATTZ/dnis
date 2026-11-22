@@ -33,11 +33,5 @@ u wish to know whats my favorite ships? there. berryfunny, funtime, souljester, 
 
 my main kins atm are shrimpo, waxwell and glisten. but i also kin looey, and relate to brusha, gigi, finn, dyle and dandy
 
-some random headcanons i got:
-- looey and sprout are parents figure to gourdy
-- gourdy, sprout, dandy, bassie are all somehow related / consider each other family.
-- gigi and toodles are like siblings
-- waxwell secretly admires shrimpo and has a weird obsession with him 👀
-- dandy, shrimpo, dyle and vee are on the aroace spectrum. its an important hc for me
 
 i wrote this while i was pissed sorry bye
